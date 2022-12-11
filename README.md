@@ -1,1 +1,1 @@
-https://HustonPriem.github.io/rsschool-cv/cv
+https://HustonPriem.github.io/rsschool-cv/
